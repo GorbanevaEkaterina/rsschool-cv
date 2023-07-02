@@ -1,3 +1,4 @@
+
 #Gorbaneva Ekaterina 
 ##About me 
 **Conscientious, responsible, communicative. I love learning new things. 
@@ -6,3 +7,4 @@
  *Phone: +79270184381 
  *E-mail: lwohviem@gmail.com
  *discord: GorbanevaEkaterina#5853
+
